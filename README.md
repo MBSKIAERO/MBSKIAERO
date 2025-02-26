@@ -1,1 +1,1 @@
-![Logo SVG](https://github.com/user-attachments/assets/68c47c52-fdf0-41b7-b43c-e6d07fa7d3d4)
+![Profile Icon SVG](https://github.com/user-attachments/assets/22f425b4-e9fa-4711-8f5b-7b68cff005c5)
